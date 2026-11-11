@@ -8,5 +8,5 @@
 ${{\color{#D89898}{\textsf{shiropup . .}}}}$ <br>
 ${{\color{#C08080}{\textsf{int　unless said　　}}}}$　<br>
 ${{\color{#A93939}{\textsf{otherwise / if im w friends｡}}}}$　<br>
-${{\color{#D89898}{\textsf{I block freely｡ no dni I curate my own space｡}}}}$ <br>
-<sub> no dni ≠ i support problematic things <sub/>
+${{\color{#D89898}{\textsf{I block freely｡ I curate my own space｡}}}}$ <br>
+<sub> I curate my own space ≠ I support problematic things <sub/>
