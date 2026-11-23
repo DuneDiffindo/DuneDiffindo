@@ -3,7 +3,7 @@
 <img src="https://i.postimg.cc/sDZt7v85/Untitled321-20261123214338-fliter-dark-crimson-sepia-channel-red-mode-soft-light.png" width="200" align="left" alt="daww" />
 
 
-${{\color{#D89898}{\textsf{　　shiropup .　 .　}}}}$ <br>
+${{\color{#ffffff}{\textsf{　　shiropup .　 .　}}}}$ <br>
 ${{\color{#C08080}{\textsf{　　int　unless said　　}}}}$　<br>
 ${{\color{#A93939}{\textsf{　　otherwise｡　　}}}}$　<br>
 ${{\color{#D89898}{\textsf{　　I block freely｡　 I curate my own space｡}}}}$ <br>
