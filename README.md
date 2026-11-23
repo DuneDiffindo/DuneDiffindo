@@ -1,6 +1,6 @@
 <div align="center">
   
-<img src="https://i.postimg.cc/sDZt7v85/Untitled321-20261123214338-fliter-dark-crimson-sepia-channel-red-mode-soft-light.png" width="200" align="left" alt="daww" />
+<img src="https://i.postimg.cc/sDZt7v85/Untitled321-20261123214338-fliter-dark-crimson-sepia-channel-red-mode-soft-light.png" width="220" align="left" alt="daww" />
 
 
 ${{\color{#ffffff}{\textsf{　　shiropup .　 .　}}}}$ <br>
