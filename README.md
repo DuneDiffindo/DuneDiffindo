@@ -14,8 +14,16 @@ ${{\color{#ffffff}{\textsf{　　14and under dni, 15 thin ice　}}}}$ <br>
 ${{\color{#C08080}{\textsf{　　int　unless said　otherwise｡　}}}}$　<br>
 ${{\color{#814564}{\textsf{　　wow wow ow wow　　}}}}$　<br>
 ${{\color{#D89898}{\textsf{　　I block freely,　 I curate my own space｡}}}}$ <br>
-
 my interests may consist of things that people may deem problematic <br>
+✧ 　　　things like dmmd, the list goes on. i will talk about them when given the chance <br>
+<sub> . .　　 the █████ will ███████ you in time, ███　　██████　　<sub/>
 
 
+
+<div align="center">
+
+
+
+  how do I code again <br>
+  help <br>
 <img src="https://i.postimg.cc/1thHx3Mf/Tumblr-l-19947044615663.png" height="50" align="left" alt="daww" />
