@@ -10,7 +10,6 @@ ${{\color{#ffffff}{\textsf{　　　　i love you gdragon　　　}}}}$ <br>
     
 <img src="https://i.postimg.cc/sDZt7v85/Untitled321-20261123214338-fliter-dark-crimson-sepia-channel-red-mode-soft-light.png" width="205" align="left" alt="daww" />
 
-  <sub> . 　.　　o7 <sub/>
   
 ${{\color{#ffffff}{\textsf{　　14and under dni, 15 thin ice　}}}}$ <br>
 ${{\color{#C08080}{\textsf{　　int　unless said　otherwise｡　}}}}$　<br>
