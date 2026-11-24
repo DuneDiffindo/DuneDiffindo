@@ -3,7 +3,7 @@
   
 <img src="https://i.postimg.cc/RhykvN9w/Untitled322-20261124122401-fliter-dark-crimson-sepia-channel-red-mode-soft-light.png" height=100 align="center" alt="daww" />
 
-
+${{\color{#ffffff}{\textsf{　　　　i love you gdragon　　　}}}}$ <br>
 
   <div align="left">
 
