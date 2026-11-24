@@ -15,7 +15,7 @@ ${{\color{#ffffff}{\textsf{　　14and under dni, 15 thin ice　}}}}$ <br>
 ${{\color{#C08080}{\textsf{　　int　unless said　otherwise｡　}}}}$　<br>
 ${{\color{#814564}{\textsf{　　wow wow ow wow　　}}}}$　<br>
 ${{\color{#D89898}{\textsf{　　I block freely,　 I curate my own space｡}}}}$ <br>
-${{\color{#ffffff}{\textsf{　　my interests may consist of things that people may deem problematic　}}}}$ <br>
+<sub>　　my interests may consist of things that people may deem problematic　<sub/> <br>
 <sub> . .　　 the █████ will ███████ you in time, ███　　██████　　<sub/>
 
 
