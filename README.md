@@ -18,6 +18,7 @@ ${{\color{#D89898}{\textsf{　　I block freely,　 I curate my own space｡}}}}
 <sub>　　my interests may consist of things that people may deem problematic　<sub/> <br>
 <sub> . .　　 the █████ will ███████ you in time, ███　　██████　　<sub/>
 
+${{\color{#ffffff}{\textsf{　　　　　ouo　　　}}}}$ <br>
 
 
 <div align="center">
