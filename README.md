@@ -11,7 +11,7 @@
 <img src="https://i.postimg.cc/sDZt7v85/Untitled321-20261123214338-fliter-dark-crimson-sepia-channel-red-mode-soft-light.png" width="205" align="left" alt="daww" />
 
 <br>
-**-14** dni, **15** thin ice okey  <br>
+-14 dni, 15 thin ice okey  <br>
 int unless said **otherwise**  <br>
   <br>
 wow I block freely｡  <br>
