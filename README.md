@@ -15,8 +15,10 @@
 int unless  said　otherwise  <br>
   <br>
 wow I block freely｡  <br>
-  <br>
+<sub>  my interests may include stuff people deem problematic. don't like, • don't int!   </sub>
+<br>
 
+<br> 
 <div align="center">
   
 ______
