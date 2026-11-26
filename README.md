@@ -8,18 +8,18 @@ ${{\color{#ffffff}{\textsf{　　　　stream GiiiRIP　　　}}}}$ <br>
   <div align="left">
 
     
-<img src="https://i.postimg.cc/sDZt7v85/Untitled321-20261123214338-fliter-dark-crimson-sepia-channel-red-mode-soft-light.png" width="210" align="left" alt="daww" />
+<img src="https://i.postimg.cc/sDZt7v85/Untitled321-20261123214338-fliter-dark-crimson-sepia-channel-red-mode-soft-light.png" width="205" align="left" alt="daww" />
 
 <br>
 -14 dni, 15 thin ice  <br>
 int unl said　otherwise  <br>
-I curate my own space｡  <br>
+I block freely｡  <br>
 <br>
-<sub> . .　　 the █████ will ███████ you in time, ███　　██████　　<sub/>
+“B - I - G!    V - I - P” <br>
 <br>
 
 <div align="center">
   
 ______
   
-fuk
+why text so small question
