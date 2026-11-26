@@ -12,7 +12,7 @@
 
 <br>
 -14 dni, 15 thin ice  <br>
-int ${{\color{#C08080}{\textsf{  unless  }}}}$ said　otherwise  <br>
+int unless  said　otherwise  <br>
   <br>
 wow I block freely｡  <br>
   <br>
