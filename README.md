@@ -1,9 +1,9 @@
-<div align="center">
+  <div align="center">
 
   
 <img src="https://i.postimg.cc/RhykvN9w/Untitled322-20261124122401-fliter-dark-crimson-sepia-channel-red-mode-soft-light.png" height=100 align="center" alt="daww" />
 
-${{\color{#ffffff}{\textsf{　　　　stream GiiiRIP　　　}}}}$ <br>
+  ${{\color{#ffffff}{\textsf{　　　　stream GiiiRIP　　　}}}}$ <br>
 
   <div align="left">
 
@@ -12,14 +12,16 @@ ${{\color{#ffffff}{\textsf{　　　　stream GiiiRIP　　　}}}}$ <br>
 
 <br>
 -14 dni, 15 thin ice  <br>
-int unl said　otherwise  <br>
-I block freely｡  <br>
-<br>
-“B - I - G!    V - I - P” <br>
-<br>
+int ${{\color{#C08080}{\textsf{  unless  }}}}$ said　otherwise  <br>
+  <br>
+wow I block freely｡  <br>
+  <br>
 
 <div align="center">
   
 ______
   
-why text so small question
+
+| The stage goes dark,  | let the bass drum, go   |
+| -----|------|
+| A feast of light,  | beyond Planck time | 
